@@ -1,8 +1,8 @@
 # videos
 site para link de videos
-https://youtu.be/VEXahhoCAqs?si=N9pe8ZqkoPWfcT8b
+https://youtu.be/1q8lhYVhw6E?si=iyX5bTrtK7HINovb
 <br>
-https://youtu.be/AlIoycNl7MQ?si=cZHSjtrZ49LlTu6K
+https://youtu.be/w7kxy2EqMfs?si=vX_ZGoOx2u5CB6Lw
 <br>
 https://youtu.be/PCGz6n6jFv0?si=eFJsIYfNF2EG3rM9
 <br>
