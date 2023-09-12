@@ -3,7 +3,7 @@
 <br><br>
 #1 Lucas Montano: https://youtu.be/k8dxx3UtW_k?si=5O-GzcWTtzgnssVP
 <br><br>
-#2 Labz: https://youtu.be/MQ0Hrjfx0Js?si=uUtbOXtZOsxbVXj7
+#2 Labz: https://youtu.be/KHGFDYDxIa4?si=sQGFV-WkJi2zyug3
 <br><br>
 #3 CDN: https://youtu.be/AN5y9IJfiiU?si=XHKk7yl9IPSST-vV
 <br><br>
