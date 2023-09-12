@@ -1,23 +1,22 @@
 # videos
-site para link de videos
-https://youtu.be/1q8lhYVhw6E?si=iyX5bTrtK7HINovb
-<br>
-https://youtu.be/w7kxy2EqMfs?si=vX_ZGoOx2u5CB6Lw
-<br>
-https://youtu.be/PCGz6n6jFv0?si=eFJsIYfNF2EG3rM9
-<br>
-https://youtu.be/raA9EPvRcR8?si=odaXAKmmd_9NEo-p
-<br>
-https://youtu.be/z4plH2K2uHY?si=y_gfnNmRX31jwXkM
-<br>
-https://youtu.be/yx6bt-LSKq8?si=jLaAN7RaY234vLTd
-<br>
-https://youtu.be/DqTITcMq68k?si=bYCoY5RXwcPRcRLd
-<br>
-https://youtu.be/UBAX-13g8OM?si=jYV64orub5lzDAC5
-<br>
-https://youtu.be/U3vFyLeS9yk?si=jLPfrkR0MRoHb19c
-<br>
-https://youtu.be/O9qJvwLKUNc?si=UhZ4F_L20jZsugK9
-<br>
-https://youtu.be/rDjW5Grfhi0?si=fNNKnSZcO5l4xuOd
+#site para link de videos
+<br><br>
+#1 Lucas Montano: https://youtu.be/k8dxx3UtW_k?si=5O-GzcWTtzgnssVP
+<br><br>
+#2 Labz: https://youtu.be/MQ0Hrjfx0Js?si=uUtbOXtZOsxbVXj7
+<br><br>
+#3 CDN: https://youtu.be/AN5y9IJfiiU?si=XHKk7yl9IPSST-vV
+<br><br>
+#4 TecnoArt: https://youtu.be/x-P8AH3h21g?si=WvEbYmXDrpAF-QrG
+<br><br>
+#5 Fernando Kanashiro: https://youtu.be/6JE4HdI4PSg?si=BqRYDhoSmpqS0WdA
+<br><br>
+#6 Sacani: https://youtu.be/8CVeNqiJlos?si=CNhIJAxB8RZ1twsT
+<br><br>
+#7 Labz: https://youtu.be/p-IabRJzyaA?si=6OTA5WLeS-eEx9Ks
+<br><br>
+#8 AM3NIC: https://youtu.be/nwFxj-wSOXw?si=KA2gD2_o-Bagwklb
+<br><br>
+#9 CDN: https://youtu.be/ZSHJjgpgUTU?si=jBLAEDltzr_PqvHL
+<br><br>
+#10 GuiDev: https://youtu.be/CeeBi_PWutc?si=6P3AX61t5SeHwhDO
