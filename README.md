@@ -3,11 +3,11 @@
 <br><br>
 #1 Lucas Montano: https://youtu.be/k8dxx3UtW_k?si=5O-GzcWTtzgnssVP
 <br><br>
-#2 Labz: https://youtu.be/KHGFDYDxIa4?si=sQGFV-WkJi2zyug3
+#2 italo: https://youtu.be/YKXC_kgyz1o?si=2MCk6hvVYl7fLVfc
 <br><br>
 #3 CDN: https://youtu.be/AN5y9IJfiiU?si=XHKk7yl9IPSST-vV
 <br><br>
-#4 TecnoArt: https://youtu.be/x-P8AH3h21g?si=WvEbYmXDrpAF-QrG
+#4 Felipe: https://youtu.be/rTcS0raY4F0?si=2zFphU72fsf1I_rI
 <br><br>
 #5 Fernando Kanashiro: https://youtu.be/6JE4HdI4PSg?si=BqRYDhoSmpqS0WdA
 <br><br>
