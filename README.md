@@ -15,7 +15,7 @@
 <br><br>
 #7 Labz: https://youtu.be/p-IabRJzyaA?si=6OTA5WLeS-eEx9Ks
 <br><br>
-#8 AM3NIC: https://youtu.be/nwFxj-wSOXw?si=KA2gD2_o-Bagwklb
+#8 histo: https://youtu.be/vACA0z-Ts3E?si=ODvJBgaD3_dku0n7
 <br><br>
 #9 CDN: https://youtu.be/ZSHJjgpgUTU?si=jBLAEDltzr_PqvHL
 <br><br>
