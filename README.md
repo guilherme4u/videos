@@ -18,6 +18,7 @@
 #3 Leo: https://youtu.be/8NaAYg1LVu8?si=Ed8jAa4bK1773C5l
 <br><br>
 
+
 <h1> Stackz </h1>
 <br><br>
 #1 Pedro: https://youtu.be/4vR2vfLDUKw?si=RGbbIK9KaeTaOJtk
@@ -29,3 +30,9 @@
 #4 Stackz: https://youtu.be/Spt5nntCDt0?si=Ja00z9j6ez5FV07j
 <br><br>
 #5 Stackz: https://youtu.be/gVPIXV4CD-g?si=eVxCppOczL9Y60_P
+
+
+https://youtu.be/b6bxahGN_Lk?si=Be3HoRsgwqVP8nAF
+https://youtu.be/ky48WD3Xb9c?si=uae3rRP9k_malJPq
+https://youtu.be/vAI_wN-Cx6g?si=HGuF8nzjqbMjRuFc
+https://youtu.be/IWMKdNfn07k?si=UrVGvDeSxZkvKfhO
