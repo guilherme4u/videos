@@ -13,10 +13,11 @@
 <br><br>
 #1 Grongos: https://youtu.be/cXEcCJt52Dc?si=nILkbLznWWCIetT4
 <br><br>
-#2 Adolfao: https://youtu.be/bbI3Rd0DPiY?si=Nv70m9EOSABPoq5o
+#2 Adolfao: https://youtu.be/wdoX9RLd6uw?si=KB7LfiCiqfnsZ77g
 <br><br>
 #3 Leo: https://youtu.be/8NaAYg1LVu8?si=Ed8jAa4bK1773C5l
 <br><br>
+https://youtu.be/zymr8AGuFmU?si=hc7O8MbJiQPoOkSQ
 
 
 <h1> Stackz </h1>
