@@ -8,14 +8,18 @@
 <br><br>
 #5 Mano Deyvao: https://youtu.be/0c8yCj5Frx8?si=Eg3R6WmJhozSDAaT
 <br><br>
+https://youtu.be/30nlBGjPRYM?si=Vcjq2ipWbFhxIg9k
 
 <h1> Game </h1>
+https://youtu.be/NRv7yITRMHo?si=F_p8L5ynqdbAJHox
+<br>
+https://youtu.be/O8XLK53fysk?si=ueJWKOKXlxbu6ODn
 <br><br>
 #1 Grongos: https://youtu.be/cXEcCJt52Dc?si=nILkbLznWWCIetT4
 <br><br>
-#2 Adolfao: https://youtu.be/wdoX9RLd6uw?si=KB7LfiCiqfnsZ77g
-https://youtu.be/zPOMKkyXAwM?si=Aqbyx7OvyOWp0Fo0
-https://youtu.be/XZf18pVO4IM?si=DSNuIx1adg5Lacyk
+#2 Adolfao: https://youtu.be/nhFLKdVu4V8?si=y3-Z1O4UAtWnNR-X
+<br>
+
 <br><br>
 #3 Leo: https://youtu.be/8NaAYg1LVu8?si=Ed8jAa4bK1773C5l
 <br><br>
