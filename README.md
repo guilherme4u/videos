@@ -11,6 +11,12 @@
 https://youtu.be/30nlBGjPRYM?si=Vcjq2ipWbFhxIg9k
 
 <h1> Game </h1>
+<br>
+https://youtu.be/2mU5v6tRDBA?si=0tf1qS2VgRqDLudL
+<br>
+https://youtu.be/GXcHoz7DDgo?si=TqqZ1pw0ebtQy2eZ
+<br>
+2 a cima
 https://youtu.be/NRv7yITRMHo?si=F_p8L5ynqdbAJHox
 <br>
 https://youtu.be/O8XLK53fysk?si=ueJWKOKXlxbu6ODn
